@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=gamejutsu&label=Profile%20views&color=0e75b6&style=flat" alt="gamejutsu" /> </p>
 
-<p align="left"> <a href="https://instagram.com/gamejutsu_vaibhav" target="blank"><img src="https://img.shields.io/instagram/follow/gamejutsu_vaibhav?logo=instagram&style=for-the-badge" alt="gamejutsu_vaibhav" /></a> </p>
+<p align="left"> <a href="https://instagram.com/gamejutsu_vaibhav" target="blank"><img src="https://img.shields.io/github/followers/gamejutsu?label=Follow&logo=instagram&style=social" alt="gamejutsu_vaibhav" /></a> </p>
 
 - 🌱 I’m currently learning **frontend development with React while increasing my DSA knowledge**
 
