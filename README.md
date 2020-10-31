@@ -28,19 +28,13 @@
 <!-- BLOG-POST-LIST:START -->
 - [Halloween's Near 🎃
 
- #3dart   #satisfying   #animation   #satisfyingvideos   #blendercommunityindia   #gfx   #3danimation   #3dartist   #vfx   #3d ...](https://www.picuki.com/media/2429551236740914866)
+ #3d...](https://www.picuki.com/media/2429551236740914866)
 - [The Warpzone
 
-Wouldn't have been possible without @ducky3d 
-
- #3dart   #satisfying   #animation   #satisfyingvideos   #blendercommunityindia   #gfx   ...](https://www.picuki.com/media/2428689140184775818)
-- [iOS photos app icon reimagined in Blender 3D
-
- #3dart   #satisfying   #animation   #satisfyingvideos   #blendercommunityindia   #gfx   #3danimation   ...](https://www.picuki.com/media/2427146615330288134)
-- [Not everything in life can be satisfying, atleast 3d renders can...🤤
-
- #3dart   #satisfying   #animation   #satisfyingvideos   #blendercommunityind...](https://www.picuki.com/media/2420047487516908629)
-- [Spent 2 days learning about environment in blender and no new modelling skills so I thought why not use only this newfound knowledge to make something...](https://www.picuki.com/media/2419323370711013058)
+Wouldn't ha...](https://www.picuki.com/media/2428689140184775818)
+- [iOS photos app icon reima...](https://www.picuki.com/media/2427146615330288134)
+- [Not everything in life ca...](https://www.picuki.com/media/2420047487516908629)
+- [Spent 2 days learning abo...](https://www.picuki.com/media/2419323370711013058)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.instagram.com/gamejutsu_vaibhav/)
