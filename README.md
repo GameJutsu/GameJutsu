@@ -26,9 +26,9 @@
 ### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Halloween's Near 🎃
+- [Halloween's Near 🎃. 
 
-#3da...](https://www.instagram.com/p/CG3f_o9jZ6y)
+#3...](https://www.instagram.com/p/CG3f_o9jZ6y)
 - [The Warpzone
 
 Wouldn't ha...](https://www.instagram.com/p/CG0b-e-j_yK)
