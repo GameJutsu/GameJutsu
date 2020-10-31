@@ -6,7 +6,7 @@
 <p align="left"> <a href="https://instagram.com/gamejutsu_vaibhav" target="blank"><img src="https://img.shields.io/github/followers/gamejutsu?label=Follow&logo=instagram&style=social" alt="gamejutsu_vaibhav" /></a> </p>
 
 
-<p align="left"> <a href="https://https://github.com/gamejutsu" target="blank"><img src="https://img.shields.io/github/followers/gamejutsu?label=Follow&style=social" alt="gamejutsu" /></a> </p>
+<p align="left"> <a href="https://github.com/gamejutsu" target="blank"><img src="https://img.shields.io/github/followers/gamejutsu?label=Follow&style=social" alt="gamejutsu" /></a> </p>
 
 - 🌱 I’m currently learning **frontend development with React while increasing my DSA knowledge**
 
