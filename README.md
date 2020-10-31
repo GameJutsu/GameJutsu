@@ -1,12 +1,10 @@
 <h1 align="center">Hi 👋, I'm Kumar Vaibhav (GameJutsu)</h1>
 <h3 align="center">A passionate Student, Developer & an Artist from India with interests in a plethora of subjects.</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=gamejutsu&label=Profile%20views&color=0e75b6&style=social" alt="gamejutsu" /> </p>
-
-<p align="left"> <a href="https://instagram.com/gamejutsu_vaibhav" target="blank"><img src="https://img.shields.io/github/followers/gamejutsu?label=Follow&logo=instagram&style=social" alt="gamejutsu_vaibhav" /></a> </p>
-
-
-<p align="left"> <a href="https://github.com/gamejutsu" target="blank"><img src="https://img.shields.io/github/followers/gamejutsu?label=Follow&style=social" alt="gamejutsu" /></a> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=gamejutsu&label=Profile%20views&color=0e75b6&style=social" alt="gamejutsu" /> 
+<a href="https://instagram.com/gamejutsu_vaibhav" target="blank"><img src="https://img.shields.io/github/followers/gamejutsu?label=Follow&logo=instagram&style=social" alt="gamejutsu_vaibhav" /></a>
+<a href="https://github.com/gamejutsu" target="blank"><img src="https://img.shields.io/github/followers/gamejutsu?label=Follow&style=social" alt="gamejutsu" /></a>
+</p>
 
 - 🌱 I’m currently learning **frontend development with React while increasing my DSA knowledge**
 
