@@ -23,7 +23,7 @@
 
 ---
 
-### 📕 Latest Blog Posts
+### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
 - [Halloween's Near 🎃
@@ -37,7 +37,7 @@ Wouldn't ha...](https://www.picuki.com/media/2428689140184775818)
 - [Spent 2 days learning abo...](https://www.picuki.com/media/2419323370711013058)
 <!-- BLOG-POST-LIST:END -->
 
-➡️ [more blog posts...](https://www.instagram.com/gamejutsu_vaibhav/)
+➡️ [more posts...](https://www.instagram.com/gamejutsu_vaibhav/)
 
 ---
 
