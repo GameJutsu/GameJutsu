@@ -28,13 +28,13 @@
 <!-- BLOG-POST-LIST:START -->
 - [Halloween's Near 🎃
 
- #3d...](https://www.picuki.com/media/2429551236740914866)
+#3da...](https://www.instagram.com/p/CG3f_o9jZ6y)
 - [The Warpzone
 
-Wouldn't ha...](https://www.picuki.com/media/2428689140184775818)
-- [iOS photos app icon reima...](https://www.picuki.com/media/2427146615330288134)
-- [Not everything in life ca...](https://www.picuki.com/media/2420047487516908629)
-- [Spent 2 days learning abo...](https://www.picuki.com/media/2419323370711013058)
+Wouldn't ha...](https://www.instagram.com/p/CG0b-e-j_yK)
+- [iOS photos app icon reima...](https://www.instagram.com/p/CGu9PywjbIG)
+- [Not everything in life ca...](https://www.instagram.com/p/CGVvF4xBZxV)
+- [Spent 2 days learning abo...](https://www.instagram.com/p/CGTKcmcB9bC)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more blog posts...](https://www.instagram.com/gamejutsu_vaibhav/)
