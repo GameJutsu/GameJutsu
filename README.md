@@ -26,11 +26,7 @@
 ### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Halloween's Near 🎃. Made...](https://www.instagram.com/p/CG3f_o9jZ6y)
-- [The Warpzone. Wouldn't ha...](https://www.instagram.com/p/CG0b-e-j_yK)
-- [iOS photos app icon reima...](https://www.instagram.com/p/CGu9PywjbIG)
-- [Not everything in life ca...](https://www.instagram.com/p/CGVvF4xBZxV)
-- [Spent 2 days learning abo...](https://www.instagram.com/p/CGTKcmcB9bC)
+- [[Action required] Your RS...](https://rss.app)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more posts...](https://www.instagram.com/gamejutsu_vaibhav/)
