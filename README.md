@@ -37,4 +37,4 @@
 
 ---
 
-<p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=gamejutsu&show_icons=true&locale=en&layout=compact" alt="gamejutsu" /><img align="right" width="50%" src="https://github-readme-stats.vercel.app/api?username=gamejutsu&show_icons=true&locale=en" alt="gamejutsu" /></p>
+<p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=gamejutsu&show_icons=true&locale=en&layout=compact" alt="gamejutsu" /><img align="right" width="50%" src="https://github-readme-stats.vercel.app/api?username=gamejutsu&show_icons=true&locale=en&count_private=true" alt="gamejutsu" /></p>
