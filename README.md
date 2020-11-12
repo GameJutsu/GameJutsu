@@ -26,9 +26,9 @@
 ### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
+- [Halloween's Near 🎃. Made...](https://www.picuki.com/media/2429551236740914866)
 - [The Warpzone. Wouldn't ha...](https://www.picuki.com/media/2428689140184775818)
 - [iOS photos app icon reima...](https://www.picuki.com/media/2427146615330288134)
-- [Halloween's Near 🎃. Made...](https://www.picuki.com/media/2429551236740914866)
 - [Not everything in life ca...](https://www.picuki.com/media/2420047487516908629)
 - [Spent 2 days learning abo...](https://www.picuki.com/media/2419323370711013058)
 <!-- BLOG-POST-LIST:END -->
