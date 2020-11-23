@@ -26,11 +26,11 @@
 ### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Halloween's Near 🎃. Made...](https://www.picuki.com/media/2429551236740914866)
-- [The Warpzone. Wouldn't ha...](https://www.picuki.com/media/2428689140184775818)
-- [iOS photos app icon reima...](https://www.picuki.com/media/2427146615330288134)
-- [Not everything in life ca...](https://www.picuki.com/media/2420047487516908629)
-- [Spent 2 days learning abo...](https://www.picuki.com/media/2419323370711013058)
+- [Halloween's Near 🎃. Made...](https://scontent-yyz1-1.cdninstagram.com/v/t51.2885-15/e35/122912283_350904529345185_7530294700959565672_n.jpg?_nc_ht=scontent-yyz1-1.cdninstagram.com&_nc_cat=109&_nc_ohc=J-Bn-8hor00AX-llYuX&se=7&tp=1&oh=f55a66fc27e8771b02cc993ed9cc542e&oe=5FE2D1BE&ig_cache_key=MjQyOTU1MTIzMjM2MjEzNDc3MA%3D%3D.2)
+- [The Warpzone. Wouldn't ha...](https://scontent-yyz1-1.cdninstagram.com/v/t51.2885-15/e35/s480x480/122585215_944446472748148_6810096364875061366_n.jpg?_nc_ht=scontent-yyz1-1.cdninstagram.com&_nc_cat=104&_nc_ohc=MFSoEFPfy1wAX-mz-If&tp=1&oh=c1727ed2937f622da24d50a013732936&oe=5FE4C5FD&ig_cache_key=MjQyODY4OTA5Nzg3MjQ3NjA0MA%3D%3D.2)
+- [iOS photos app icon reima...](https://scontent-yyz1-1.cdninstagram.com/v/t51.2885-15/e35/122494444_458825685092727_2055957707623910347_n.jpg?_nc_ht=scontent-yyz1-1.cdninstagram.com&_nc_cat=103&_nc_ohc=pOI5wCOMyjsAX8LWKh-&se=7&tp=1&oh=5fe005584ece82562e845f4fc7d4f968&oe=5FE4A2A5&ig_cache_key=MjQyNzE0NjYxMDk5MzM3ODgzMA%3D%3D.2)
+- [Not everything in life ca...](https://scontent-yyz1-1.cdninstagram.com/v/t51.2885-15/e35/s480x480/121419567_379371906575483_3946320252934043004_n.jpg?_nc_ht=scontent-yyz1-1.cdninstagram.com&_nc_cat=111&_nc_ohc=LWAQpAN6vSoAX-_Mth7&tp=1&oh=b7c0dcce60aa42159775ddb560b6acf5&oe=5FE64AE5&ig_cache_key=MjQyMDA0NzQ4NzUxNjkwODYyOQ%3D%3D.2)
+- [Spent 2 days learning abo...](https://scontent-yyz1-1.cdninstagram.com/v/t51.2885-15/e35/121598511_906020526592580_327937099981270786_n.jpg?_nc_ht=scontent-yyz1-1.cdninstagram.com&_nc_cat=108&_nc_ohc=9jD5WyHIpw8AX-AsPTk&se=7&tp=1&oh=5880298ae99c7c616a2cf2edc72074e5&oe=5FE2BFD6&ig_cache_key=MjQxOTMyMzM2Nzg2NzA4NjA1Mg%3D%3D.2)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more posts...](https://www.instagram.com/gamejutsu_vaibhav/)
