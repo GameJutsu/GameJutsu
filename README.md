@@ -26,11 +26,11 @@
 ### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Halloween's Near 🎃. Made...](https://scontent-lga3-1.cdninstagram.com/v/t51.2885-15/sh0.08/e35/s640x640/122912283_350904529345185_7530294700959565672_n.jpg?_nc_ht=scontent-lga3-1.cdninstagram.com&_nc_cat=109&_nc_ohc=9f60Lfp_IPQAX9gOezE&tp=1&oh=c6b1e67b63cc4f3d4a0cd1ce9c536b05&oe=5FF99788)
-- [The Warpzone. Wouldn't ha...](https://scontent-lga3-1.cdninstagram.com/v/t51.2885-15/sh0.08/e35/s640x640/122585215_944446472748148_6810096364875061366_n.jpg?_nc_ht=scontent-lga3-1.cdninstagram.com&_nc_cat=104&_nc_ohc=0mgFmWfuPsMAX9VCtmc&tp=1&oh=4c84a03e9189f66cdff8f54d50abc49f&oe=5FD15287)
-- [iOS photos app icon reima...](https://scontent-lga3-1.cdninstagram.com/v/t51.2885-15/sh0.08/e35/c315.0.810.810a/s640x640/122494444_458825685092727_2055957707623910347_n.jpg?_nc_ht=scontent-lga3-1.cdninstagram.com&_nc_cat=103&_nc_ohc=yb7pCl-aq-0AX-fj_ym&tp=1&oh=74d9c89cf2b14044c71e206e43ed08c5&oe=5FF911BB)
-- [Not everything in life ca...](https://scontent-lga3-1.cdninstagram.com/v/t50.2886-16/121458687_351799509272504_3101306316152252067_n.mp4?_nc_ht=scontent-lga3-1.cdninstagram.com&_nc_cat=108&_nc_ohc=_F72ulQUA7MAX_AMXG_&oe=5FD12585&oh=ca93775c5ff4f3958bb157e3a6ae9bad)
-- [Spent 2 days learning abo...](https://scontent-lga3-1.cdninstagram.com/v/t51.2885-15/sh0.08/e35/s640x640/121598511_906020526592580_327937099981270786_n.jpg?_nc_ht=scontent-lga3-1.cdninstagram.com&_nc_cat=108&_nc_ohc=M6Ex72vlG1sAX-8NJJe&tp=1&oh=961e0081465e9f491774ae5e913979e9&oe=5FF6C531)
+- [Halloween's Near 🎃. Made...](https://instagram.fiev22-1.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/s640x640/122912283_350904529345185_7530294700959565672_n.jpg?_nc_ht=instagram.fiev22-1.fna.fbcdn.net&_nc_cat=109&_nc_ohc=p5_-vtRDcNgAX8KUi1x&tp=1&oh=7c7cd28a0543e0cc957d1cebbc1befca&oe=60018088)
+- [The Warpzone. Wouldn't ha...](https://instagram.fiev22-2.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/s640x640/122585215_944446472748148_6810096364875061366_n.jpg?_nc_ht=instagram.fiev22-2.fna.fbcdn.net&_nc_cat=104&_nc_ohc=nVkGKd1NcqIAX8hByPI&tp=1&oh=e864413f9f7f1621000734dc8f980d2f&oe=5FDBDE87)
+- [iOS photos app icon reima...](https://instagram.fiev22-1.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/c315.0.810.810a/s640x640/122494444_458825685092727_2055957707623910347_n.jpg?_nc_ht=instagram.fiev22-1.fna.fbcdn.net&_nc_cat=103&_nc_ohc=OEu2norkvBoAX-CSGik&tp=1&oh=99dc1fcd442083eab84a3d44e273d3d4&oe=6000FABB)
+- [Not everything in life ca...](https://instagram.fiev22-1.fna.fbcdn.net/v/t50.2886-16/121458687_351799509272504_3101306316152252067_n.mp4?_nc_ht=instagram.fiev22-1.fna.fbcdn.net&_nc_cat=108&_nc_ohc=4ad3oS9hNTcAX_mR3e4&oe=5FDBB185&oh=d9f39e105d6a28bf5c12abf78f833a75)
+- [Spent 2 days learning abo...](https://instagram.fiev22-1.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/s640x640/121598511_906020526592580_327937099981270786_n.jpg?_nc_ht=instagram.fiev22-1.fna.fbcdn.net&_nc_cat=108&_nc_ohc=BLxoGYETyk4AX-gR4eR&tp=1&oh=2e82a4b29afe3071b788169b9649a2b9&oe=6002A2B1)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more posts...](https://www.instagram.com/gamejutsu_vaibhav/)
