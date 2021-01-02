@@ -26,11 +26,11 @@
 ### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Halloween's Near 🎃. Made...](https://instagram.flwo4-1.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/s640x640/122912283_350904529345185_7530294700959565672_n.jpg?_nc_ht=instagram.flwo4-1.fna.fbcdn.net&_nc_cat=109&_nc_ohc=8F9BNWWGJlMAX-QWisW&tp=1&oh=276192a104e05878c864956c80d1e366&oe=60154708)
-- [The Warpzone. Wouldn't ha...](https://instagram.flwo4-2.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/s640x640/122585215_944446472748148_6810096364875061366_n.jpg?_nc_ht=instagram.flwo4-2.fna.fbcdn.net&_nc_cat=104&_nc_ohc=WBi0k2ON5AgAX8AK132&tp=1&oh=10a3aae708b0b8a530dd6d0c07ecdc9b&oe=5FED0207)
-- [iOS photos app icon reima...](https://instagram.flwo4-2.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/s640x640/122494444_458825685092727_2055957707623910347_n.jpg?_nc_ht=instagram.flwo4-2.fna.fbcdn.net&_nc_cat=103&_nc_ohc=V_-ipTnobn0AX9knnRh&tp=1&oh=d4b8666fc4fa4d170b69bffc631c490e&oe=6014A71F)
-- [Not everything in life ca...](https://instagram.flwo4-2.fna.fbcdn.net/v/t50.2886-16/121458687_351799509272504_3101306316152252067_n.mp4?_nc_ht=instagram.flwo4-2.fna.fbcdn.net&_nc_cat=108&_nc_ohc=AjP8Pm7d0DMAX-kafac&oe=5FECD505&oh=69e5330dd34723f80cfdb9328a440aef)
-- [Spent 2 days learning abo...](https://instagram.flwo4-2.fna.fbcdn.net/v/t51.2885-15/sh0.08/e35/s640x640/121598511_906020526592580_327937099981270786_n.jpg?_nc_ht=instagram.flwo4-2.fna.fbcdn.net&_nc_cat=108&_nc_ohc=rFMUnpOjQeYAX-v0m7l&tp=1&oh=d8942565c6ae4683b6de9868ba325623&oe=601274B1)
+- [Halloween's Near 🎃. Made...](https://www.picuki.com/media/2429551236740914866)
+- [The Warpzone. Wouldn't ha...](https://www.picuki.com/media/2428689140184775818)
+- [iOS photos app icon reima...](https://www.picuki.com/media/2427146615330288134)
+- [Not everything in life ca...](https://www.picuki.com/media/2420047487516908629)
+- [Spent 2 days learning abo...](https://www.picuki.com/media/2419323370711013058)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more posts...](https://www.instagram.com/gamejutsu_vaibhav/)
