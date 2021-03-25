@@ -22,10 +22,10 @@
 ### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [iOS photos app icon reima...](https://www.picuki.com/media/2427146615330288134)
 - [The Warpzone. Wouldn't ha...](https://www.picuki.com/media/2428689140184775818)
 - [Halloween's Near 🎃. Made...](https://www.picuki.com/media/2429551236740914866)
 - [Swipe to see breakdown..➡...](https://www.picuki.com/media/2416982281874247481)
+- [Spent 2 days learning abo...](https://www.picuki.com/media/2419323370711013058)
 - [Say Hello...♥️
 
  #3dart...](https://www.picuki.com/media/2417640614310211689)
