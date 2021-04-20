@@ -26,9 +26,7 @@
 - [The Warpzone. Wouldn't ha...](https://www.picuki.com/media/2428689140184775818)
 - [Halloween's Near 🎃. Made...](https://www.picuki.com/media/2429551236740914866)
 - [Swipe to see breakdown..➡...](https://www.picuki.com/media/2416982281874247481)
-- [Say Hello...♥️
-
- #3dart...](https://www.picuki.com/media/2417640614310211689)
+- [Spent 2 days learning abo...](https://www.picuki.com/media/2419323370711013058)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more posts...](https://www.instagram.com/gamejutsu_vaibhav/)
