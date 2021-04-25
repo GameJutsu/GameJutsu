@@ -22,7 +22,7 @@
 ### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [iOS photos app icon reima...](https://www.picuki.com/media/2427146615330288134)
+- [Toon style loop animation...](https://www.picuki.com/media/2557709272734253238)
 - [The Warpzone. Wouldn't ha...](https://www.picuki.com/media/2428689140184775818)
 - [Halloween's Near 🎃. Made...](https://www.picuki.com/media/2429551236740914866)
 - [Say Hello...♥️
