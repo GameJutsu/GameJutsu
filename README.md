@@ -22,13 +22,19 @@
 ### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [Toon style loop animation...](https://www.picuki.com/media/2557709272734253238)
-- [Halloween's Near 🎃. Made...](https://www.picuki.com/media/2429551236740914866)
-- [Swipe to see breakdown..➡...](https://www.picuki.com/media/2416982281874247481)
-- [Say Hello...♥️
+- [The Kaleidoscope of Bubbl...](https://www.picuki.com/media/2572707419847979071)
+- [The Tesseract
 
- #3dart...](https://www.picuki.com/media/2417640614310211689)
-- [Spent 2 days learning abo...](https://www.picuki.com/media/2419323370711013058)
+ #blenderr...](https://www.picuki.com/media/2571876822170759189)
+- [The Crow-n
+
+@ustwogames...](https://www.picuki.com/media/2567208867961111262)
+- [The Other Side
+
+Using JSP...](https://www.picuki.com/media/2570418070016096731)
+- [Swipe ➡️
+
+ #blendercommun...](https://www.picuki.com/media/2561469477016273214)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more posts...](https://www.instagram.com/gamejutsu_vaibhav/)
