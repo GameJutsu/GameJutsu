@@ -22,19 +22,17 @@
 ### 📕 Latest Instagram Posts
 
 <!-- BLOG-POST-LIST:START -->
-- [The Kaleidoscope of Bubbl...](https://www.picuki.com/media/2572707419847979071)
-- [The Tesseract
-
- #blenderr...](https://www.picuki.com/media/2571876822170759189)
 - [The Crow-n
 
 @ustwogames...](https://www.picuki.com/media/2567208867961111262)
+- [The Tesseract
+
+ #blenderr...](https://www.picuki.com/media/2571876822170759189)
 - [The Other Side
 
 Using JSP...](https://www.picuki.com/media/2570418070016096731)
-- [Swipe ➡️
-
- #blendercommun...](https://www.picuki.com/media/2561469477016273214)
+- [The Kaleidoscope of Bubbl...](https://www.picuki.com/media/2572707419847979071)
+- [Toon style loop animation...](https://www.picuki.com/media/2557709272734253238)
 <!-- BLOG-POST-LIST:END -->
 
 ➡️ [more posts...](https://www.instagram.com/gamejutsu_vaibhav/)
